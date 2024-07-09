@@ -1,0 +1,1 @@
+To purchase the program, write to me in telegram @lztperforator
